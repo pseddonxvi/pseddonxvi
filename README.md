@@ -1,1 +1,1 @@
-"You want to wake up in the morning and think the future is going to be great — and that's what being a spacefaring civilization is all about. It's about believing in the future and thinking that the future will be better than the past. And I can't think of anything more exciting than going out there and being among the stars." -someone who is REALLY inconvenient to quote
+"If we let them do enough unfettered capitalism, we can apparently capitalism our way to socialism"
