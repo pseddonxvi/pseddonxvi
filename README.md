@@ -1,1 +1,1 @@
-i like starships
+The lesson of Icarus isn't "Don't fly too close to the sun" its "Make better fucking wings" -Dev Ayesa
